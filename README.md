@@ -1,0 +1,2 @@
+- Hello, shortie :)
+- Github account for patche/patchubigbrain/BlazeZaKyatto
